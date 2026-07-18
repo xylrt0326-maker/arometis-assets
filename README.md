@@ -1,0 +1,1 @@
+# arometis-assets
